@@ -1,5 +1,4 @@
-# Souparnika 
-GitHub Profile README
+# Souparnika H
 
 Hi There 😊✌
 
